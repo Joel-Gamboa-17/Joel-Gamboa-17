@@ -9,7 +9,7 @@ Perhaps this presentation of my Repository is less formal than others :sweat_smi
 
 *Here leave you my favorite Character* :sunglasses:
 
-![Chito](https://static.wikia.nocookie.net/p__/images/a/ae/ChitoWithSniperScope.png/revision/latest?cb=20211022110615&path-prefix=protagonist)
+![Chito](https://i.ytimg.com/vi/uD4Suc8I13I/maxresdefault.jpg)
 
 Thanks. 
 
